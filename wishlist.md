@@ -17,6 +17,7 @@
 12. Лампа на монитор <br>
     Варианты:
     - [Yeelight LED Screen Light Bar Pro](https://market.yandex.ru/product--lampa-ofisnaia-svetodiodnaia-yeelight-led-screen-light-bar-pro-yltd003-10-vt/1660977226) (в идеале черную + надо поискать где есть в наличии)
+12. Всякие прикольные наборы магнитных отверок с множеством насадок (ну и не только отвертки... просто чтоб можно было что угодно откручивать)
 13. Подстветка на монитор <br>
     [пример](https://market.yandex.ru/product--ambilight-podsvetka-dlia-monitora-24-diuima-skydimo/1940477450?sku=102412070579&uniqueId=67996566&do-waremd5=vE2x4lNW8VjlQHRQOOCDNQ)
 14. Подставка под ноги (сидеть за столом)
